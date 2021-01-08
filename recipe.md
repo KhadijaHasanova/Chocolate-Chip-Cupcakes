@@ -9,4 +9,4 @@
 8. Fill cupcake liners 3/4 with batter.
 9. Add a few chocolate chips into each liner filled with batter.
 10. Bake until slightly golden on top and until a toothpick inserted into the middle comes out clean. Takes about 35 minutes.
-11. Enjoy
+11. Enjoy!!
